@@ -2,4 +2,4 @@
 - 👀 I’m interested in ... CODING and GAMING
 - 🌱 I’m currently learning ... at HACKBRIGHT 
 - 💞️ I’m looking to collaborate on ... ANYTHING to LEARN
-- 📫 How to reach me ... CRYSSANN@GMAIL.COM
+- 📫 How to reach me ... SELF.CRYSTAL.ANN@GMAIL.COM
