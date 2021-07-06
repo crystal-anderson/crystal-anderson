@@ -1,5 +1,1 @@
-- 👋 Hi, I’m @crystal-anderson
-- 👀 I’m interested in ... CODING and GAMING
-- 🌱 I’m currently learning ... at HACKBRIGHT 
-- 💞️ I’m looking to collaborate on ... ANYTHING to LEARN
-- 📫 How to reach me ... SELF.CRYSTAL.ANN@GMAIL.COM
+Crystal is a Colorado native with a creative and diverse background. From electrician, to manager, to educator, she strived to locate a career that would empower her to make an impact, to innovate and grow, and to feel purpose. She believes that the world would be a better place if when we recognized there’s a problem, we took the initiative to create a solution. The decisive search for this career was reached with programming. Combined with her extensive skills in communication, collaboration, and problem-solving, Crystal is an asset that can’t be overlooked. She looks forward to continuing her growth and love for programming in the field and in her spare time.
